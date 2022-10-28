@@ -1,4 +1,4 @@
-##INSTRUCTIONS
+## INSTRUCTIONS
 
 1. If using frozen puff pastry, take it out of the freezer to defrost and reach room temperature.
 
