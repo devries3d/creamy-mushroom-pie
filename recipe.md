@@ -17,3 +17,16 @@
 8. Roll out the pastry on a lightly floured surface and cut it to fit the top of the pie dish. Gently score the top in a criss-cross pattern and lift it on to the pie dish. Crimp the edges of the pastry around the top of the dish using a fork. Brush the top of the pastry with a little extra oat milk to help it turn golden.
 
 9. Cook in the oven for 25 minutes, until the pastry is golden and crisp. This goes wonderfully on its own, or you could serve it with a green salad orin winter with roasted potatoes.
+
+### Ingredients
+
+- 320 g puff pastry
+- 400 g mushrooms
+- 1 leek
+- 3 cloves garlic peeled and finely chopped
+- 200 g sweet potatoes
+- 200 g potatoes
+- 1 tbsp Dijon mustard
+- 8 tsp flour
+- 1 tsp garlic powder
+- 800 ml oat milk
